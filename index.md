@@ -67,22 +67,22 @@ Please check our discord server [Here!](https://discord.gg/a4nwkPf)
 
 **Avaible Colours:**
 
-◆Light Blue
+◆Light Blue   ![Image of AnimeWolrd](https://cdn.discordapp.com/attachments/249644639642976256/388506994853543937/Capture.PNG)
 
-◆Light Green
+◆Light Green  ![Image of AnimeWolrd](https://cdn.discordapp.com/attachments/249644639642976256/388507279412166658/unknown.png)
 
-◆Orange
+◆Orange  ![Image of AnimeWolrd](https://cdn.discordapp.com/attachments/249644639642976256/388507378905251847/unknown.png)
 
-◆Red
+◆Red  ![Image of AnimeWolrd](https://cdn.discordapp.com/attachments/249644639642976256/388507936705478667/Capture.PNG)
 
-◆Purple
+◆Purple  ![Image of AnimeWolrd](https://cdn.discordapp.com/attachments/249644639642976256/388507937422966784/2.PNG)
 
-◆Pink Skin
+◆Pink Skin  ![Image of AnimeWolrd](https://cdn.discordapp.com/attachments/249644639642976256/388507939209478146/3.PNG)
 
-◆Pink
+◆Pink  ![Image of AnimeWolrd](https://cdn.discordapp.com/attachments/249644639642976256/388507940300259339/5.PNG)
 
-◆Blue
+◆Blue  ![Image of AnimeWolrd](https://cdn.discordapp.com/attachments/249644639642976256/388507941571133460/4.PNG)
 
-◆White
+◆White  
 
-◆Black
+◆Black ![Image of AnimeWolrd](https://cdn.discordapp.com/attachments/249644639642976256/388507943001391104/8.PNG)
