@@ -1,6 +1,6 @@
 ## Welcome to GitHub Pages
 
-Please check our discord server
+Please check our discord server **https://discord.gg/a4nwkPf**
 
 
 ![Image of AnimeWolrd](http://desktop.wallpaperchanel.com/wp-content/uploads/Cute-Anime-Wallpaper-Download.jpg)
