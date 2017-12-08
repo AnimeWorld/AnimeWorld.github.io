@@ -26,6 +26,8 @@ Please check our discord server [Here!](https://discord.gg/a4nwkPf)
 
 **◆Enjoy this server, hope you gonna get fun. ( ´ ∀ `)ノ～ ♡**
 
+## Anime World Server Partner Requirements!
+
 ![Image of AnimeWolrd](https://cdn.discordapp.com/attachments/386618452611170314/386618729376645130/Partnership_Requirements.png)
 
 **(つ≧▽≦)つ ◆Partnership Requirements:**
