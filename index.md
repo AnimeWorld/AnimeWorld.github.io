@@ -33,8 +33,56 @@ Please check our discord server [Here!](https://discord.gg/a4nwkPf)
 **(つ≧▽≦)つ ◆Partnership Requirements:**
 
 
-◆100+ users for normal shoutout.**
+◆100+ users for normal shoutout.
 
 ◆200+ users for @ here.**
 
 ◆300+ users for @ everyone.
+
+## Anime World Leveling Roles!
+
+![Image of AnimeWolrd](https://cdn.discordapp.com/attachments/386618452611170314/386618857173024779/Levelling_Roles.png)
+
+**(つ≧▽≦)つ ◆Levelling Roles:**
+
+◆Kouhai - Level 5
+
+◆Anime Lover - Level 10
+
+◆Senpai - Level 15
+
+◆Sensei - Level 20
+
+◆Weeaboo - Level 25
+
+◆Otaku - Level 30
+
+## Anime World Name Colours!
+
+![Image of AnimeWolrd](https://cdn.discordapp.com/attachments/386618452611170314/386619696050601986/Colours.png)
+
+**(つ≧▽≦)つ ◆Colours:**
+
+**◆If you wanna give yourself a colour just do "1iam colour" so for example : 1iam light blue**
+
+**Avaible Colours:**
+
+Light Blue
+
+Light Green
+
+Orange
+
+Red
+
+Purple
+
+Pink Skin
+
+Pink
+
+Blue
+
+White
+
+Black
