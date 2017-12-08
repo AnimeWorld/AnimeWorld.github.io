@@ -67,22 +67,22 @@ Please check our discord server [Here!](https://discord.gg/a4nwkPf)
 
 **Avaible Colours:**
 
-Light Blue
+◆Light Blue
 
-Light Green
+◆Light Green
 
-Orange
+◆Orange
 
-Red
+◆Red
 
-Purple
+◆Purple
 
-Pink Skin
+◆Pink Skin
 
-Pink
+◆Pink
 
-Blue
+◆Blue
 
-White
+◆White
 
-Black
+◆Black
