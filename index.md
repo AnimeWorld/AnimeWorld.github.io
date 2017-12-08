@@ -86,3 +86,11 @@ Please check our discord server [Here!](https://discord.gg/a4nwkPf)
 ◆White  
 
 ◆Black ![Image of AnimeWolrd](https://cdn.discordapp.com/attachments/249644639642976256/388507943001391104/8.PNG)
+
+## Wanna Be a STAFF ?!
+
+![Image of AnimeWolrd](https://cdn.discordapp.com/attachments/386618452611170314/386624300842745856/Apply_for_staff.png)
+
+**(つ≧▽≦)つ ◆Apply for staff:**
+
+◆If you wanna apply for staff Press on this [here](https://docs.google.com/forms/d/e/1FAIpQLSehqgj4X8qvbHSvY8OoAbq2QTz2Vk7mxsyJNhEskU7gV3bGsg/viewform?usp=sf_link) and fill it ! 
