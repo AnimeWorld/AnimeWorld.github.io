@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Welcome to Anime World Website
 
 Please check our discord server **https://discord.gg/a4nwkPf**
 
